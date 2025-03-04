@@ -1,1 +1,1 @@
-branc1 için deneme 
+Yetersiz olduğum için özür dilerim 
